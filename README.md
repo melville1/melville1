@@ -5,7 +5,7 @@
 
 - 💬 Ask me about **traveling and places to eat**
 
-- ⚡ Fun fact **sci-fi nerd**
+- ⚡ Fun fact **sci-fi/anime nerd**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
